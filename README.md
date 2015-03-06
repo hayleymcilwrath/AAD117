@@ -7,6 +7,4 @@ Personal Identity:
 
 * [Wordmark] (https://www.flickr.com/photos/128349074@N08/16509919977/)
 
-* [Sketches] (https://www.flickr.com/photos/128349074@N08/16529903320/)
-
-* [Rough work] (https://www.flickr.com/photos/128349074@N08/16715927381/)
+* [supportive work] (https://www.flickr.com/photos/128349074@N08/16715927381/)
