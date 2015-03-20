@@ -10,7 +10,7 @@ Personal Identity:
 * [supportive work] (https://www.flickr.com/photos/128349074@N08/16715927381/)
 
 
-Uncommon Knowledge
+Uncommon Knowledge:
 ------------------
 
 * [Logo] (https://www.flickr.com/photos/128349074@N08/16684612550/in/photostream/)
