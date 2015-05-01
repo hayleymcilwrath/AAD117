@@ -13,6 +13,6 @@ Personal Identity:
 Uncommon Knowledge:
 ------------------
 
-* [Visual Identity] (https://www.flickr.com/photos/128349074@N08/16684612550/in/photostream/)
+* [Visual Identity] (https://https://www.flickr.com/photos/128349074@N08/17145572298/
 
 * [Supportive Work] (https://www.flickr.com/photos/128349074@N08/16684642870/)
