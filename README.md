@@ -13,6 +13,12 @@ Personal Identity:
 Uncommon Knowledge:
 ------------------
 
-* [Visual Identity] (https://https://www.flickr.com/photos/128349074@N08/17145572298/
+* [Visual Identity] (https://www.flickr.com/photos/128349074@N08/17145572298/in/dateposted-public/)
 
 * [Supportive Work] (https://www.flickr.com/photos/128349074@N08/16684642870/)
+
+* [Style Tiles] (https://www.flickr.com/photos/128349074@N08/17437347125/in/datetaken/)
+
+* [Icon Set] (https://www.flickr.com/photos/128349074@N08/17549937922/in/dateposted-public/)
+
+* [touchpoints] (https://www.flickr.com/photos/128349074@N08/16940206054/in/dateposted-public/)
