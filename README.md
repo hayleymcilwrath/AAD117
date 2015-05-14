@@ -21,6 +21,6 @@ Uncommon Knowledge:
 
 * [Icon Set] (https://www.flickr.com/photos/128349074@N08/17549937922/in/dateposted-public/)
 
-* [touchpoints] (https://www.flickr.com/photos/128349074@N08/sets/72157652804289125)
+* [Touchpoints] (https://www.flickr.com/photos/128349074@N08/sets/72157652804289125)
 
 * [Rough Work] (https://www.flickr.com/photos/128349074@N08/sets/72157650464109354)
